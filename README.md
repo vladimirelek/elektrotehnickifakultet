@@ -1,0 +1,2 @@
+# elektrotehnickifakultet
+Bimbo
